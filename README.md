@@ -1,3 +1,3 @@
 # Projetinho-.exe
-Executável que fiz para uma brincadeira com meu namorado S2
+Executável que fiz para uma brincadeira com meu namorado 💜
 
